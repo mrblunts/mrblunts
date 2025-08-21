@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Hello All -- Thanks for Visiting!
 <br><br>Welcome to my ✨relative world ✨ <br><br>- 🔭 I’m currently working on confidential software project(s)...<br>- 🌱 I’m currently looking for full time roles<br>- 👯 I’m looking to collaborate on *challenging projects<br>- 📫 How to reach me out: https://abdim.netlify.app<br>- ⚡ Fun fact: I like every genre of music
 
 
