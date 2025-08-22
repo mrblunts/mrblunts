@@ -15,7 +15,7 @@
 ---
 [![](https://visitcount.itsvg.in/api?id=mrblunts&icon=0&color=0)](https://visitcount.itsvg.in)
 
-![snake gif](https://github.com/mrblunts/mrblunts/blob/output/github-snake-dark.svg)
+![snake gif](https://github.com/mrblunts/mrblunts/blob/output/github-snake.svg)
 
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
