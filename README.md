@@ -1,5 +1,5 @@
 # 💫 Hello All -- Thanks for Visiting!
-<br><br>Welcome to my ✨relative world ✨ <br><br>- 🔭 I’m currently working on confidential software project(s)...<br>- 🌱 I’m currently looking for full time roles<br>- 👯 I’m looking to collaborate on *challenging projects<br>- 📫 How to reach me out: https://abdim.netlify.app<br>- ⚡ Fun fact: I like every genre of music
+<br><br>Welcome to my ✨relative world ✨ <br><br>- 🔭 I’m currently working with Lexora Professional Academy with Digital Projects(s)...<br>- 🌱 I’m currently looking for full time roles in AI or IT<br>- 👯 I’m looking to collaborate on *challenging projects<br>- 📫 How to reach me out: [https://abdim.netlify.app](https://officialportfolio1.netlify.app/)<br>- ⚡ Fun fact: I like every genre of music
 
 
 ## 🌐 Socials:
