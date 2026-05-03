@@ -1,5 +1,5 @@
 # 💫 Hello All -- Thanks for Visiting!
-<br><br>Welcome to my ✨relative world ✨ <br><br>- 🔭 I’m currently working with Lexora Professional Academy with Digital Projects(s)...<br>- 🌱 I’m currently looking for full time roles in AI and/or Fintech<br>- 👯 I’m looking to collaborate on *challenging projects<br>- 📫 How to reach me out: [Official Portfolio](https://officialportfolio1.netlify.app/)<br>- ⚡ Fun fact: I like every genre of music.
+<br><br>Welcome to my ✨relative world ✨ <br><br>- 🔭 At the moment, I'm working on projects-- discreet...<br>- 🌱 I’m looking for full time roles in AI and/or Fintech<br>- 👯 I’m looking to collaborate on *challenging projects<br>- 📫 How to reach me out: [Official Portfolio](https://officialportfolio1.netlify.app/)<br>- ⚡ Fun fact: I like the union set all genres of music.
 
 
 ## 🌐 Socials:
